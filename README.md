@@ -1,3 +1,4 @@
-# Marcell Reynoso
-21 años
+# Marcell Alessandro Reynoso Flores
 UNJBG
+21 años
+Informática y sistemas
